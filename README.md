@@ -1,0 +1,1 @@
+# estado-de-los-componentes-y-eventos
