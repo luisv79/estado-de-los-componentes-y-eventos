@@ -1,1 +1,1 @@
-Hecho de menera individual
+Hecho de manera individual
