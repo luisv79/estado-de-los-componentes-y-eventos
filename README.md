@@ -1,0 +1,1 @@
+Hecho de menera individual
